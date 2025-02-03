@@ -6,7 +6,7 @@
 
 - 📝 I regularly write articles on [Creationdheeraj.blogspot.com](Creationdheeraj.blogspot.com)
 
-- 📫 How to reach me **dk1747056@gmail.com**
+- 📫 How to reach me **dheerajparat@gmail.com**
 
 - ⚡ Fun fact **I am very funny 😁**
 
